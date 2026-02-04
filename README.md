@@ -1,5 +1,4 @@
 ✨ who uses github anyway ✨
-<!---
-rizeydizey/rizeydizey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+meow
+67
+WHO DID THE YOUNG PEOPLE CHOOSE AS THEY LEADER? NBA YOUNGBOY!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
